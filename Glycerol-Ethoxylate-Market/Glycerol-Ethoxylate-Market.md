@@ -82,7 +82,7 @@ Some of the key players operating in the Glycerol Ethoxylate Market include:
 * Solvay (Belgium)
 * Stepan Company (USA)
 
-## Global Glycerol Ethoxylate Market(https://infinitymarketresearch.com/request-sample/1549) Scope
+## Global Glycerol Ethoxylate Market Scope
 
 | Attribute             | Details                      |
 | :-------------------- | :--------------------------- |
